@@ -1,2 +1,2 @@
-- :smile: hi im erlumax
+- :smile:hi im erlumax
 - 💀I am 157 years old no :billed_cap:
